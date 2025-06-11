@@ -2,7 +2,7 @@
 
 🧠 Autistic developer passionate about building accessible and inclusive tech.  
 💻 Focused on learning, evolving, and creating real-world impact through code.  
-🌍 Based in Toronto · Open to remote opportunities worldwide
+🌍 Open to remote opportunities worldwide
 
 ---
 
